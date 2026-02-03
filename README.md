@@ -1,0 +1,1 @@
+# Operadores-de-atribui-o-aritm-ticos-e-l-gicos-Avalia-o-Diagn-stica-
